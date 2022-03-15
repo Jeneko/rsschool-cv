@@ -3,3 +3,8 @@
 I dunno. Maybe it's an addon to GTA VC? Hope so.
 ## Additional info
 I like cats and food. And a bit JavaScript.
+## Personal qualities
+* Tidiness
+* Conceptuality
+* Attentivesness
+* Self-irony
